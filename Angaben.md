@@ -1,7 +1,7 @@
 # FL-in-Energiesytemen
 
 Hier finden Sie erneut das vorgestellte Poster so wie die entsprechenden Extendet Abstracts.
-(Falls diese noch nicht eingebunden sein sollten bitte wir noch ein wenig um gedult).
+(Falls diese noch nicht eingebunden sein sollten bitte wir noch um ein wendig Geduld).
 Bei weiteren Fragen oder Anregungen erreichen Sie uns unter folgenden Email Adressen:
 
 Maximilian Hanauer:
